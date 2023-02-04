@@ -1,4 +1,8 @@
-### Hi there 👋
+### Hi there 👋 
+- This is Jesse J (Sorry, not the singer)
+- SIPA, Columbia University :school:
+- New York City :city_sunrise: :coffee:
+- Chongqing :deciduous_tree: :dog2:
 
 <!--
 **Jessejjjc/Jessejjjc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
