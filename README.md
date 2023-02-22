@@ -1,5 +1,6 @@
 ### Hi there 👋 
 - This is Jesse J (Sorry, not the singer)
+- Impact Investing; Sustainable Development; Economic Policy Research; Digital Communication; Journalism
 - SIPA, Columbia University :school:
 - New York City :city_sunrise: :coffee:
 - Chongqing :deciduous_tree: :dog2:
